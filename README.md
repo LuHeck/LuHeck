@@ -36,7 +36,7 @@ Sinta-se à vontade para explorar meus repositórios e projetos. Se você tiver 
 
 ---
 
-Obrigado por visitar meu perfil! 🌷
+Obrigada! 🌷
 
 ---
 
